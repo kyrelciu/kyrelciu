@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @kyrelciu#0001
+- 👀 I'm FiveM Developer
+- My discord shop https://discord.gg/TgXQgcwU9a
